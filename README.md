@@ -1,2 +1,2 @@
 # Systematic-review
-reviewing researches relevant to trauma, banditry, age, gender and Nigeria
+reviewing researche works relevant to trauma, banditry, age, gender and Nigeria
